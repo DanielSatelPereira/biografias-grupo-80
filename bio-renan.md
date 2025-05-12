@@ -1,3 +1,3 @@
 Muito prazer! Me chamo Renan dos Santos Oliveira, tenho 19 anos e sou uma pessoa curiosa e dedicada. Gosto de estudar, ouvir música, tocar bateria e jogar títulos desafiadores como Elden Ring e Dark Souls III.
 No dia a dia, trabalho com meu pai, cuido da casa quando necessário, brinco com meu irmão e passo um tempo com minha namorada.
-Entre meus hobbies estão tocar bateria, jogar videogame, praticar esportes como basquete e vôlei, e programar — embora ultimamente eu não tenha feito isso com tanta frequência quanto gostaria.
+Entre meus hobbies estão tocar bateria, jogar videogame, praticar esportes como basquete e vôlei, e programar — embora ultimamente eu não tenha feito isso com tanta frequência quanto gostaria
