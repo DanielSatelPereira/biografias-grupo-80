@@ -1,0 +1,3 @@
+Meu nome é Ville Nunes, tenho 19 anos e sou uma pessoa que gosta de aprender, me desafiar e evoluir constantemente. Atualmente, estou cursando o ensino superior na Faculdade Alfa Umuarama, onde busco construir uma base sólida para o meu futuro profissional.
+
+Além dos estudos, gosto muito de jogar bola e participar de atividades que envolvam estratégia, como jogos que estimulam o raciocínio e a tomada de decisões. Acredito que esse equilíbrio entre o físico e o mental é essencial para o meu desenvolvimento pessoal. Sou movido pela curiosidade e pela vontade de crescer em tudo o que me proponho a fazer.
